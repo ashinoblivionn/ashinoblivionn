@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ashinoblivionn
+- 👀 I’m interested in Film, Cinematography and Programming
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to find friends
+- 📫 How to reach me : @ashtonawilde
